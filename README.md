@@ -1,1 +1,1 @@
-# Mazero_I494
+# Hello, my name is Joey Mazero and I am a senior in the informatics program with a specialization in game design. When I am not pursuing my education you can find me involved in clubs on campus such as Hoosier Games and the IU guitar ensamble. I hope to continue my career in technology after I graduate by becoming a narrative designer in the video game industry. 
